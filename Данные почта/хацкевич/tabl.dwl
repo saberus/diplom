@@ -1,3 +1,0 @@
-sergey
-DESKTOP-T3JUSD9 
-31 мая 2017 г.  23:55:27
